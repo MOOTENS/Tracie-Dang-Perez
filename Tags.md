@@ -82,6 +82,290 @@ Like I stated in my previous video (if you have not seen it), do NOT be discoura
 
 ---
 
+traciedang
+So one of the biggest challenges and necessary things Models have to learn is to know about posing! You may probably have questions like the following:
+
+How do I know what to pose?
+How do I pose full body?
+How do I pose for head shot?
+What expressions do I show?
+
+And the list goes on... For me, practice definitely makes perfect and it is so important to learn your angles of your body and face! I have been modeling and acting for 5 years now professionally and I am signed with a few agencies in SF, Sacramento, Arizona, and Toronto, Canada. This was not an easy walk in the park to work hard on face expressions, body angles and shape. I always make sure to give my 100% on every shoot and definitely provide a transparent communication between you and the photographer!
+It is important to always do just subtle movements, soft hands, light fingertips, and to definitely create a nice S shape with your body! For acting is a whole other ball game but I will get into that next time 😊
+In the beginning of the video I was posing upper body actually using more subtle movements with my hands around my face. Later in the video I am doing more 3/4 and full body poses during the shoot which I provided more S shape and use more of my arms. I am still changing it up but with subtle movements. Even though I am short this does not stop me from modeling!
+
+For more questions and dialogue, let's chat more about it in the comments! Thank you everyone 💋🖤
+.
+.
+Videographer: @mootensproductions .
+.
+#modeling101 #bayareamodel #bayareamodels #howtopose #modelgoals #modelshoot #modelingphotography #modellifestyle #modelsofinstagram #modelingagency #modellife #modelstyle #asianmodel #asianbeauty #asianmodeling #torontomodels #torontomodeling #lamodeling #californiamodel #torontomodel #lamodel #californiamodels #californiamodeling #nycmodel #nycmodels #posingtips #posingforthecamera #posing #modelposing
+
+---
+
+## traciedang
+Train your Mindset
+
+It is so important to put your head in the game when you have goals and you are fighting for your missions. It is even harder to train your mindset to be disciplined and hardworking literally on a DAILY basis to make everything work especially as an entrepreneur or independently working for yourself. Keep fighting and keep grinding.
+#hustle #hustlers #trainyourmind #discipline #entrepreneurs #mootens #entrepreneurship #modellife💃 #modeltraveling #modelsofinstagram #inspired #inspiredaily #inspirationalquotes #businessowner #businessmind #businessmind #lamodelsearch #lamodelsnewfaces #lamodeling #lamodel #torontomodel #laactress #nycmodels #nycmodel
+
+---
+
+traciedang
+Yes I finally got into that @tiktok game and it is pretty fun! Lol my username is pretty much the same as my Instagram 🤣 who has a @tiktok account out there?! Let's connect! 💋🖤
+.
+.
+Amazing BTS from my Yosemite trip with this talented team:
+Amazing Photographer: @jasonblonde @jleephotoimaging
+Talented Designer: @hilltribefusion
+Awesome Model partner: @mashaposes
+MUAH/ Model: @traciedang (me)
+.
+.
+.
+#yosemitevalley #modeling #asianmodel #asianmodels #globalasianmodel #editorialphotography #fashionshoots #designerclothes #modeltoronto #nycmodel #lamodelswomen #lamodelsearch #lamodelsnewfaces #lamodeling #lamodel #torontomodel #torontomodelagency #californiamodeling #californiamodel #modelcalifornia #lainfluencer #influencermarketing #tiktokasia #tiktokasiangirl #tiktoklover #naturemodel #natureblogger #lablogger #fashionmakeup #fashionandstyle
+
+---
+
+## traciedang
+I am very grateful for all of the growth, support, and connections we are obtaining via our business @mootensproductions ❤ I know I have been talking about this nonstop but this journey is changing our lives for the better and I am excited for the future to come! So far this has not been an easy path but I know this is what George and I are meant to do and to live our lives to the fullest as entrepreneurs. Always reach higher and never stop learning 💋🖤
+.
+.
+Amazing Photographer: @mikemcgeephotography
+MUAH/Styling: @traciedang (me)
+.
+.
+.
+#businessleaders #entrepreneurs #mootens #mootensproductions #mootensproductionsllc #moodygrams #portraits #moodedits #studiophotoshoot #editorialmodel #publishedmodel #lamodel #nycmodel #editorialmodeling #editorialfashionphotography #torontomodel #lamodeling #nycmodels #californiamodel #norcalmodeling #lamodelswomen #lainfluencer #laactress #torontoactress #nycactress #NYCfashion #nycinfluencer #influencerstyle #businessowner #influencermarketing
+
+
+---
+
+## traciedang
+I am grateful to try @dewycel_official Eye Cream Plus for the first time! It is very smooth and moisturizes the skin which also can be used for the whole face and well! It contains coconut oil, meadowfoam seed oil, and shea butter. It also has skin protein of the 5 peptide complex to help improve tired skin texture and restore healthy skin. It is also certified by KFDA for having the synergy effect of adenosine and peptide which are wrinkle-reducing substances. Definitely check them out on Amazon! 💋🖤
+.
+.
+Product: @dewycel_official
+Photography/Retouch/Styling: @mootensproductions .
+.
+Plus we would appreciate it if you may follow our new Instagram page for our business MOOTENS Productions LLC at @mootensproductions ❤ We specialize in Hypermedia Graphic Design, Digital Marketing and Workflow Optimization. Let's build and work together! ❤🖤❤
+.
+.
+.
+#beautyshot #beautyshooting #beautybloggers #beautytipsandtricks #beautymakeup #mootens #mootensproductions #mootensproductionsllc #naturallook #cleanface #cleanbeauty #lamodel #nycmodel #editorialmodeling #editorialfashionphotography #torontomodel #torontomodelagency #californiamodeling #californiamodel #modelcalifornia #losangelesmodel #losangelesactress #losangelesmodelingagency #nycmodelsearch #beautymodel #nycactress #torontoactress #torontomodeling #californiaactress #sponsored
+
+---
+
+## traciedang's profile picture
+traciedang
+Late post but our set was published in @vertiqle.mag ❤ Never stop the grind and the work! Creativity and Content Creation promotes continuous growth and learning and I am loving this lifestyle 💋🖤
+.
+.
+Amazing Photographer: @mbmoore
+MUAH/Styling: @traciedang (me)
+.
+.
+.
+#moodygrams #portraits #asianmodel #asianmodelsearch #asianwoman #nycmodel #nycmodelsearch #torontomodel #torontomodelagency #californiamodeling #californiamodel #modelcalifornia #californiamodels #californiamodelswanted #californiaactress #lamodelsearch #lamodeling #lamodel #laactress #losangelesactress #nycactress #blackandwhite #sultrystyle #mootensproductions #mootens #modellife💃 #publishedmodel #publication #editorialmodel #magazinepublication
+
+---
+
+## traciedang
+Let's tackle life with 100% of everything you have! Why wait on pursuing your goals, your dreams, your milestones or on living!? Life is meant to be lived not meant to be safe. Is being stagnant really living? Jump and take those risks, be optimistic, be bold, grow, learn, and be fierce 🔥
+.
+.
+Amazing Photographer: @mikemcgeephotography
+MUAH/Model/Styling: @traciedang (me)
+.
+.
+.
+#moodyphoto #gelphotography #gelphoto #editorialfashion #editorialmodel #highfashionmodel #highfashionphotography #losangelesmodel #lamodel #modeltoronto #nycmodel #lamodelswomen #nycmodels #californiamodel #modelcalifornia #californiamodels #californiamodelsearch #modelinternational #modelasian #modelasiangirl #losangelesactress #losangelesmodelswanted #nycactress #torontoactress #torontophoto #torontomodel #laactress #nycmodelagency #NYCfashion #mootensproductions
+
+---
+
+## traciedang
+Everything is in the details 🌟 This is also our go-to pose (in the 1st image) apparently for George and I when we model together lmao 🤣
+.
+.
+New year, great start, and a new beginning for George and I working our business 100%! You can follow our new business page @mootensproductions 💋 We appreciate all of your support and love! ❤🖤❤
+.
+.
+.
+Amazing Photographer: @geejersphoto
+Talented MUAH: @maiflmua
+Beautiful Floral Arrangements: @the.golden.bloom
+Models: @mootens_ (my husband) and @traciedang (myself)
+.
+.
+.
+#weddingdress #weddingphotography #weddingchicks #weddingmodel #brideandgroomphotos #weddinginspiration #weddingphotographer #weddinginspiration #entrepreneurship #businessowner #entrepreneurs #entrepreneur #mootensproductions #mootens #travelmodeling #lamodelswomen #lamodelsearch #lamodelsnewfaces #lamodeling #lamodel #nycmodel #editorialmodeling #editorialfashionphotography #nycmodels #californiamodel #californiamodelswanted #californiamodels #californiamodelsearch #torontomodel #torontomodelagency
+
+---
+
+## traciedang
+One of the sweetest things George has said was he would have the first image of me tattooed to his chest lol I told him that would be very painful though haha 🤣 I am still in LOVE with this shoot! Just wait for the cuteness in the last photo in the album ❤🖤❤
+.
+.
+.
+Amazing Photographer: @geejersphoto
+Talented MUAH: @maiflmua
+Beautiful Floral Arrangements: @the.golden.bloom
+Models: @mootens_ (my husband) and @traciedang (myself)
+.
+.
+.
+#weddingshoot #weddingphotography #weddingmodel #bridalmodeling #bridalmodel #brideandgroomphotos #weddinginspiration #weddingphotographer #weddingideas #weddingmodeling #brideandgroom #lovers #modelsofinstagram #modelshoot #styledshoot #editorialshoot #beautyshooting #lamodelsnewfaces #lamodelsearch #lamodel #laactress #lamodelingagency #nycmodels #nycmodel #nycmodelagency #nycactress #torontomodelagency #torontomodels #torontomodel #torontoactress
+
+---
+
+## traciedang
+I feel happy playing the grand piano again at my parents house playing a Prelude that I do not remember what it is called but I know it's by composer Dennis Alexander. It's crazy how time flies. I will start playing the piano more often again because it makes me happy 🎶🎼🎹 Happy Holidays everyone! ❄❤❄❤
+.
+.
+.
+#happyholidays #pianolover #musicians #musicianatheart #musiclife #musiclover #musicislove #musiciseverything #musiciseverywhere #lamodel #nycmodel #lamodels #lamodelsearch #lamodeling #nycmodeling #torontomodel #torontomodelagency #laactress #nycactress #torontoactress #losangelesactress #losangelesmodel #asianmodel #asianartist #asianactress #asianmodelsearch #asianmodelnyc #brunettemodel #lamodelsnewfaces
+
+---
+
+traciedang
+The snow and I are one as George and I are one ❄ This was so magical eloping in the snow with Jennelle! I am glad to have a trip like this together ❤ Happy Holidays everyone! ❤❄❤❄❤
+.
+.
+.
+Awesome Photographer: @geejersphoto
+Talented MUAH: @maiflmua
+Floral Arrangements: @the.golden.bloom
+Models: @mootens_ and @traciedang (George and I)
+.
+.
+.
+#weddingshoot #weddingphotography #weddingchicks #weddingmodel #brideandgroomphotos #lovers #loveofmylife💕 #bridalmodel #groom #lamodel #lamodelsnewfaces #lamodeling #lamodelingagency #laactress #losangelesactress #losangelesmodel #nycmodel #nycmodels #nycmodelsearch #nycmodeling #nycmodelagency #torontomodelagency #torontomodel #torontophoto #torontomodels #torontomodeling #nycactress #torontoactress #NYCfashion #husbandandwife
+
+---
+
+## traciedang
+Listen, learn, deliver, and conquer. Stop making excuses and become the greatest badass you see yourself being in your lifetime ⚡⚡⚡
+.
+.
+.
+Amazing Photographer: @mikemcgeephotography
+Model/MUAH: @traciedang (me)
+.
+.
+.
+#grungeaesthetics #grungephotography #grungephoto #highfashionmodel #highfashionphotography #editorialmakeup #editorialmodel #editorialphotography #editorialphotographer #editorialmodeling #nycmodel #NYCfashion #nycmodels #nycmodelagency #lamodelsearch #lamodel #losangelesactress #losangelesmodel #laactress #torontomodelagency #torontomodels #torontomodel #modeltoronto #lamodelscout #fordmodels #asianmodelsearch #asianmodelnyc #asianmodel #brunettemodel #asianmodelgirls
+
+---
+
+## traciedang
+We are just a glitch in the universe. Thus make the best out of this life, this reality, and this world. If you want to be your own boss, fucking do it. If you want to be independent, fucking do it. If you want to change the world, just fucking do it! The only person stopping you is yourself. Just grow, inspire, create and deliver to the world 💋🖤
+.
+.
+.
+Photo captured by @mootens_
+Model/ Styling/ Photo Edit: @traciedang (me)
+.
+.
+.
+#glitch #grungeaesthetics #grungefashion #grungeedits #grungeaesthetic #grungeoutfit #edgesonfleek #edgyaesthetic #edgyfashion #editorial #highfashionwomen #lamodeling #lamodelsearch #lamodelsnewfaces #lamodelscout #nycmodel #NYCfashion #nycmodels #entrepreneurship #businessowner #torontomodelagency #lamodelagency #laactress #nycactress #torontoactress #torontomodels #torontophoto #laphotography #nycphotography #businessmindset
+
+---
+
+## solutions. I am excited how our clientele continues to grow and I couldn't be more excited! Hell yeah I am looking forward to the new year of us finally being entrepreneurs 💪
+.
+.
+.
+We are here to help you and serve you to be a successful brand and business. If you are down to work together and have us help you with your business, you may check out our website at mootens.org ❤ 🥰
+.
+.
+.
+Photographer: @tronelphotos
+Custom Swarvoski Necklace: @traciedang (made by me!)
+Model: @traciedang (me)
+Talented MUAH: @maiflmua
+
+---
+
+## traciedang
+I am excited to say how George and I officially have our own business called Mootens Productions, LLC. This was definitely years in the making and we made it official when we finally knew how to combine our expertise and forces together to help brands and businesses. We offer business to business electronic and marketing solutions. I am excited how our clientele continues to grow and I couldn't be more excited! Hell yeah I am looking forward to the new year of us finally being entrepreneurs 💪
+.
+.
+.
+We are here to help you and serve you to be a successful brand and business. If you are down to work together and have us help you with your business, you may check out our website at mootens.org ❤ 🥰
+.
+.
+.
+Photographer: @tronelphotos
+Custom Swarvoski Necklace: @traciedang (made by me!)
+Model: @traciedang (me)
+Talented MUAH: @maiflmua
+
+---
+
+## traciedang
+Limoncello - Inspired Italian Summer Styled Shoot
+
+This beautiful video from @lensoflenoxvideography
+was from our Limoncello - Inspired Italian Summer Styled Shoot which was featured in the @weddingchicks! One more from our shoot in contrast from our rainy day💋🖤
+.
+.
+.
+Styling, Design Concept, + Coordination: @eventsbyrebecca
+Photography + Calligraphy: @ashbaumgartner
+Venue: @themapleswoodland Rentals & Design:  @stella_rental
+Florals: @bellanozze
+Linens: @latavolalinen
+Hair + Makeup: @alldolledup_norcal
+Videography: @lensoflenoxvideography
+Gelato: @consciouscreamery
+Bridal Gown: @bridetobecouture
+Gown Designer: @wilderlybride
+Bridal Shoes: @bellabelleshoes
+Placecard Tiles: @nsdesigngallery
+Model (myself): @traciedang
+Lemon Plates + Chargers: @williamssonoma
+.
+.
+.
+#weddingshoot #weddingplanner #weddingmodel #weddingchicks #weddingphotography #weddinghair #weddingphotographer #weddinginspiration #weddingvideography #weddingvideographer #nycmodel #nycmodels #nycmodelagency #lamodelsearch #lamodeling #losangelesmodel #losangelesphotography #modelweddingdress #modelwithpurpose #modeltraveling #modeltoronto #torontomodels #torontofashionmodel #torontomodelscout #torontophotos #losangelesmodelswanted #losangelesmodeling #lamodel #lamodelsnewfaces #videography
+
+---
+
+## traciedang
+I am very grateful and honored to model for this Limoncello-Inspired Italian Summer Styled Wedding Shoot where we were featured in @weddingchicks! 💋🖤 This set got me reminiscing the warmer sunny days contrast to this colder weather 🌼☀️
+.
+.
+Styling, Design Concept, + Coordination: @eventsbyrebecca
+Photography + Calligraphy: @ashbaumgartner
+Venue: @themapleswoodland Rentals & Design:  @stella_rental
+Florals: @bellanozze
+Linens: @latavolalinen
+Hair + Makeup: @alldolledup_norcal
+Videography: @lensoflenoxvideography
+Gelato: @consciouscreamery
+Bridal Gown: @bridetobecouture
+Gown Designer: @wilderlybride
+Bridal Shoes: @bellabelleshoes
+Placecard Tiles: @nsdesigngallery
+Model: @traciedang
+Lemon Plates + Chargers: @williamssonoma .
+.
+.
+#weddingmodeling #bridalbouquet #bridalphotoshoot #weddingchicks #weddingshoot #weddingphotography #weddinginspirations #weddingmakeup #weddinghair #weddingdress #styledshoot #modellife💃 #modeling #lamodelsnewfaces #lamodelsearch #lamodel #losangelesmodel #nycmodels #nycmodelsearch #torontomodels #torontomodeling #modeltraveling #bridalmodel #bridalmodeling #weddingplanner #modelmakeup #weddingphotographer #weddinginspiration #weddingdress
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
