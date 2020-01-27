@@ -355,6 +355,139 @@ Lemon Plates + Chargers: @williamssonoma .
 
 ---
 
+## traciedang
+I was honored to model for the beautiful new launch of @graffitiglammed "Be Out Of This World" Lash Collection by the talented @graffitima 💋🖤 .
+.
+Awesome Photographer: @englephoto_inc @timengle ⚡
+⚡
+Talented MUA's: @graffitima @jillianwilkey @honey.glamm ⚡
+⚡
+Beautiful Models: @cheyennesummerville
+@allieinblack and @traciedang (myself)
+⚡
+⚡
+Lash Collection: @graffitiglammed .
+.
+#glammakeup #highfashionmakeup #lashes #galaxia #newlashes #lashartist #lashlaunch #lashcollection #sacmua #californiamua #bayareamakeup #highfashionmodel #editorialmakeup #editorialmakeupartist #editorialmodel #editorialphotographer #editorialfashion #lamodelsearch #losangelesmodel #lamua #beautyshot #beautymakeup #beautymakeup #lamakeupartist #nycmodel #torontomodelagency #torontomodel #nycmodelsearch #asianmodelsearch #asianmodel
+
+---
+
+## traciedang
+Another whole outfit representing recycled fashion from @freestyleclothingexchange and @boheme.threads 💋
+I chose to do my part living a more sustainable lifestyle by:
+1) continuing to wear recycled fashion to help reduce the gas emissions from factories processing new clothing
+2) using reusable straws
+3) using reusable bags
+4) recycling
+5) composting
+6) using organic, natural and cruelty-free beauty and hair products with recyclable bottles
+7) using organic, natural and cruelty-free laundry detergent with recyclable bottles
+8) using organic, natural and cruelty-free cleaners with recyclable bottles
+9) planting some of our own plants and vegetables and more! My next big goal is to eventually get an all electric car like the Tesla 😈
+Let's live a more mindful and sustainable lifestyle by helping our planet one step at a time 🌱
+.
+.
+.
+I hope everyone had a wonderful Thanksgiving holiday break! I sure had a wonderful time with my loved ones ❤🖤❤
+.
+.
+.
+Awesome Photographer: @feminineportraiture
+Model/MUAH/Styling: @traciedang
+Jacket: @express | @freestyleclothingexchange
+Dress: @guess | @boheme.threads .
+.
+.
+#sustainablefashion #sustainableliving #sustainablelifestyle #recycledfashion #thriftfashion #thriftedfashion #thriftingfinds #sustainableclothing #sustainablestyle #savetheplanet #savetheearth #biodegradableproducts #fashionsustainability #lamodelsearch #lamodelsnewfaces #lamodeling #NYCfashion #lafashion #laactors #brunettemodel #asianmodelnyc #asianmodelgirls #asianmodel #torontomodels #modelife #internationalmodels #nycmodels #nycactress #laactress #traciedang
+
+---
+
+## traciedang
+Seize the fucking day because you are all worth it ⚡Plus my whole outfit is literally ALL sustainable fashion and I am proud of it! 😈💋🖤
+.
+.
+.
+Awesome Photographer: @glyde1der alongside @natural_nicholas
+Talented Videographer: @ptenfilms
+Amazing MUAH: @maiflmua
+Model/ Styling: @traciedang
+Dress: @ecothriftstores
+Gloves and faux shaw: @goodwillintl
+
+---
+
+## traciedang
+The situations we go through in life shapes us to react and act a certain way. Some of those experiences are more traumatic than others. Sometimes we feel anger, sadness, anxiety, pain, guilt, discomfort, or stress. Sometimes we feel "jaded" from those traumatic experiences. Thus, this project interprets how we can deal with the jade that may affect our lives unproductively -- we slash it down and move on 😈
+.
+.
+Awesome Videographer: @ptenfilms
+Cool Photographers: @glyde1der
+@natural_nicholas
+Talented MUAH: @maiflmua
+Model/Styling: @traciedang .
+.
+#videography #asianactress #asianwoman #asianmodel #losangelesmodel #lamodel #modeltoronto #nycmodel #lamodelswomen #losangelesactress #torontomodeling #torontomodelagency #torontoactress #nycactress #californiamodel #californiamodeling #californiaactress #actingaudition #actresslifestyle #actressla #actressnyc #brunettemodel #dropdeadgorgeous #asianbeauty #actionvideo #brunettegirls #asianmodelsearch #actinglife #modellife
+
+---
+
+## traciedang
+Yay I am a parts model now with my tiny hands! Lol This was a fun commercial we shot for @tapwith.us alongside with other wonderful talents I met on set via @modelsinctalentagency ! It was a lot of fun 📽
+.
+.
+I am very grateful to continue to meet and create with more talented people each day and I am always pushing myself to learn and do more on a daily basis. Stagnation is pain so I always lead myself into uncomfortable situations to grow. Learning enough is nonexistent as it is a continuous cycle throughout life. Stay grinding my friends! 💋🖤
+
+---
+
+## traciedang
+I had a great time shooting with a great team recently! So excited to show you guys some cool action packed video work soon! Here is a BTS video of me posing which was shot by the talented @ptenfilms while the awesome @glyde1der and @natural_nicholas were snapping photos 🖤
+.
+.
+Plus I will post a YouTube video soon on how I prepare for creative shoots with a team! Stay tuned 💋🖤
+.
+.
+Talented Videographer: @ptenfilms
+Awesome Photographers: @glyde1der and @natural_nicholas
+Amazing MUAH: @maiflmua
+Styling: @traciedang
+
+
+---
+
+## traciedang
+I am serious about how great the @evianspray is super refreshing! Just look at the second picture to see how "serious" I am lol 💋🖤 #evianspray #sponsored #ad .
+.
+Talented Photographer: @feminineportraiture
+MUAH/ Styling: @traciedang
+
+---
+
+## traciedang's profile picture
+traciedang
+You are 100% in control of your own life. Yes there will be situations when it is out of your control and chaos breaks loose but it is 100% up to you on how you deal with it and to keep going. Everyone keep grinding and keep hustling 💪
+.
+.
+Amazing Photographer: @mikemcgeephotography
+MUAH/Styling: @traciedang
+
+---
+
+## traciedang
+What does spirituality mean you? I truly believe all of us are connected and are the same no matter how different we look and act and no matter how different our social-economic is, we need to all take care of each other all over the world. We are all still living in the same planet. Laws and policies, climate change, poverty, and epidemics effects us directly and indirectly as a domino effect. Thus judge less, listen more, and show love. This is part of my spirituality. What's yours?
+.
+.
+Talented Photographer: @ruvimnogaphoto
+Amazing MUAH: @maiflmua
+
+#vintagefashion #vintagestyle #vintageclothing #californiastaterailroadmuseum #actioncamera #modelworkshop #workmodel #modelvintage #pinupmodel #californiamodel #californiamodeling #bayareamodels #bayareamodel #torontomodeling #torontomodelphotography #lamodelsearch #lamodeling #lamodelswomen #lamodel #torontomodelagency #lamodelagency #torontomodel #nycmodels #nycmodelagency #internationalmodels #editorialmodels #fashionmodels #fashionmodel #travelmodeling #sigmaphoto
+
+---
+
+
+
+
+
+
+
 
 
 
